@@ -19,7 +19,7 @@
 - 🤝I'm looking for new job opportunities  
   
 
-- 📪 How to reach me antalutemihaela32@gmail.com  
+- 📪 How to reach me antalute.mihaela2@gmail.com  
   
 
 - 💼 Find more about me and my work: https://mihaelaantalute.github.io/  
